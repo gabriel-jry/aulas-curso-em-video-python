@@ -43,7 +43,7 @@ Sugestões e melhorias são sempre bem-vindas! Se você encontrar algum erro ou 
 Caso queira trocar ideias ou tirar dúvidas, você pode entrar em contato comigo via:
 
 - **Email**: (gabriel.ferreira.franca.84@gmail.com)
-- **Whatsapp**: ([https://linkedin.com/in/seu-perfil](https://wa.me/5584992029771?text=%F0%9F%91%8B%20Ol%C3%A1!%20Vim%20atrav%C3%A9s%20do%20seu%20perfil%20e%20gostaria%20de%20saber%20mais%20sobre%20seus%20projetos%20ou%20trabalhos%20%F0%9F%92%BB%E2%9C%A8.%20Podemos%20conversar%3F%20%F0%9F%98%8A))
+- **Whatsapp**: (https://wa.me/5584992029771?text=%F0%9F%91%8B%20Ol%C3%A1!%20Vim%20atrav%C3%A9s%20do%20seu%20perfil%20e%20gostaria%20de%20saber%20mais%20sobre%20seus%20projetos%20ou%20trabalhos%20%F0%9F%92%BB%E2%9C%A8.%20Podemos%20conversar%3F%20%F0%9F%98%8A))
 
 ---
 
